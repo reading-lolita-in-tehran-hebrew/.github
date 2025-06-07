@@ -6,4 +6,4 @@
 
 ### [לקרוא את לוליטה בטהרן ➤ Reading Lolita in Tehran 2025](https://watching4khdmovies.blogspot.com/2025/06/reading-lolita-in-tehran-he.html)
 
-<img src="https://image.tmdb.org/t/p/w1280/96QaKNBWuy8L4PcemjweYL8KUNp.jpg" alt="github" data-canonical-src="https://image.tmdb.org/t/p/w1280/96QaKNBWuy8L4PcemjweYL8KUNp.jpg" style="max-width: 100%;"></a>
+<a href="https://watching4khdmovies.blogspot.com/2025/06/reading-lolita-in-tehran-he.html" rel="nofollow"><img src="https://image.tmdb.org/t/p/w1280/96QaKNBWuy8L4PcemjweYL8KUNp.jpg" alt="github" data-canonical-src="https://image.tmdb.org/t/p/w1280/96QaKNBWuy8L4PcemjweYL8KUNp.jpg" style="max-width: 100%;"></a>
